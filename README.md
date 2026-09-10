@@ -16,7 +16,7 @@
 
 [***maow***](https://github.com/VArtfultrust) ⁠ 　 [***nan***](https://github.com/Ilove-him) ⁠ 　 [***dozy***](https://github.com/OlgaSinxer)
 
-[***kitty***](https://github.com/pawfectt) ⁠ 　 [coal](https://github.com/coalcarolynne) ⁠ 　 [yekita](https://github.com/ppawncakezz) ⁠ 　 [gatita](https://github.com/Gatita-here) ⁠ 　 [crumb](https://github.com/cupt6ast) ⁠ 　 [shellzy](https://github.com/ShellzyFossilzianz) ⁠ 　 [spoke](https://github.com/spokeispeak)
+[***kitty***](https://github.com/pawfectt) ⁠ 　 [coal](https://github.com/coalcarolynne) ⁠ 　 [yekita](https://github.com/ppawncakezz) ⁠ 　 [gatita](https://github.com/Gatita-here) ⁠ 　 [crumb](https://github.com/cupt6ast) ⁠ 　 [shellzy](https://github.com/ShellzyFossilzianz) ⁠ 　 [spoke](https://github.com/spokeispeak) ⁠ 　 [eddi](https://github.com/puppyfies)
 
 </details>
 <details>
